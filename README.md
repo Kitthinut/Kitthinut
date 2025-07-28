@@ -13,7 +13,7 @@
 
 - 🧸 Play games! (Especially rhythmic games)
   
--  🎧 JPOP, KPOP, POP
+-  🎧 J-POP, K-POP, C-POP, T-POP
 
 <h3 align=left>私についての事実 (My Facts)</h3>
 
